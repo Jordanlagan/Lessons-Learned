@@ -1,0 +1,13 @@
+**some of my favorite foods**
+ - pizza
+ - sushi
+ - okonomiyaki
+ - ramen
+ - udon
+ - soba
+ - steamed buns
+ - bread
+ - spaghetti
+ - lasagna
+ - McDonalds breakfast sausage sandwich
+ - milkshake
